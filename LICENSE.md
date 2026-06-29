@@ -1,4 +1,4 @@
-# 
+# Ligero Avast Premium Security plantillas para Mac OS | Élite Avast Premium Security plantillas para PC Windows. Con protección en tiempo real y configuraciones privadas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
